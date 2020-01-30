@@ -1,0 +1,1 @@
+Ok, repository with the same Collections
